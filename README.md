@@ -1,0 +1,1 @@
+# Istanbul-University-Faculty-of-Letters-Laleli-Campus-MINECRAFT-SCHEMATIC
